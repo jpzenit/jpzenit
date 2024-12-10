@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Javier Pina this is an institutional account for Zenit capital
+- 👀 I’m interested in Finance
+- 💞️ I’m looking to collaborate on Systematic Trading Stategies
+- 📫 How to reach me javier.pina@zenitcapital.com
